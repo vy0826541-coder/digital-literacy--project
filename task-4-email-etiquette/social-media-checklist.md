@@ -1,3 +1,7 @@
+
+
+Social Media Do's and Don'ts Checklist
+
 do's
 
 Be polite and respectful in your comments and posts.
